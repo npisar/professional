@@ -1,1 +1,1 @@
-A homepage / hosting for all my professional documents
+A homepage / hosting for all of my professional documents
